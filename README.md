@@ -17,4 +17,5 @@
 * Facebook: https://www.facebook.com/sonhoangstudy23
 * Twitter: https://twitter.com/SonStudys
 * Github: https://github.com/sonhoang23
-... And Yeahhhh => Goodreads: https://www.goodreads.com/sonhoang23
+* Goodreads: https://www.goodreads.com/sonhoang23
+* ... And Yeahhhh => Youtube: shorturl.at/cxFKO  
