@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+__/_  `.  .-"""-.
+ \_,` | \-'  /   )`-')
+  "") `"`    \  ((`"`
+ ___Y  ,    .'7 /|
+(_,___/...-` (_/_/ sk
 <!--
 **sonhoang23/sonhoang23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
