@@ -12,8 +12,9 @@
 - 🤔 I’m looking for help with ................⇈
 - 💬 Ask me about .............................⇈
 - 📫 How to reach me:
-Email: hoangson.hust@gmail.com
-Facebook: https://www.facebook.com/sonhoangstudy23
-Twitter: https://twitter.com/SonStudys
-Github: https://github.com/sonhoang23
+
+* Email: hoangson.hust@gmail.com
+* Facebook: https://www.facebook.com/sonhoangstudy23
+* Twitter: https://twitter.com/SonStudys
+* Github: https://github.com/sonhoang23
 ... And Yeahhhh => Goodreads: https://www.goodreads.com/sonhoang23
